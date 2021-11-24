@@ -1,2 +1,2 @@
-# virtual-box-in-Xbox-One-
-how to turn xbox one virtual machine on windows
+Virtual Box in Xbox ONE
+OWNER IN THE CHANNEL PARTIES
